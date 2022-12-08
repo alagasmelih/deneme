@@ -1,1 +1,2 @@
-sdjbfsdbfnsjsff sddebme e deemeerwe
+sdjbfsdbfnsjsff sddebme e deemeerw
+duzeltmeler yapıldı.e
